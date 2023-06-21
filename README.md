@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Talha Munir
+- 👀 I’m interested in being a part of helping network globally
+- 🌱 I’m currently learning best practices as per the latest market trends
+- 📫 Reach me via email or whatsapp
